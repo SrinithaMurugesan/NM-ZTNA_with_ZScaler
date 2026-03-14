@@ -1,2 +1,2 @@
 # NM-ZTNA_with_ZScaler
-video link:https://drive.google.com/drive/folders/1YEpehw50VOD2uSFzVgQOuFI4h1qcdvz9?usp=sharing
+video link:https://drive.google.com/file/d/1SJAtiqTNBGN8D-pryGSFeURDhNG-H-hU/view?usp=sharing
